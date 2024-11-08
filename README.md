@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on fun projects
 - 📫 How to reach me, thatdevy on discord
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I'm exactly 6"0
+- ⚡ Fun fact: I'm exactly 6"1
 
 <!---
 RealPearsonn/RealPearsonn is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
