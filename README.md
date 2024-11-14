@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @RealPearsonn
 - 👀 I’m interested in Coding games
-- 🌱 I’m currently learning java
+- 🌱 I’m currently learning java??? (mabey)
 - 💞️ I’m looking to collaborate on fun projects
 - 📫 How to reach me, thatdevy on discord
 - 😄 Pronouns: he/him
